@@ -1,1 +1,0 @@
-# synakmal.github.io
